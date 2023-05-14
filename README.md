@@ -4,3 +4,11 @@
 music & books & astronomy
 
 ☕️ 🗝 🥯🎼 
+
+Estudante
+
+2° ano do Ensino Médio
+
+Aprendendo a arte da programação
+
+"Aprender é a única coisa de que a mente nunca se cansa, nunca tem medo e nunca se arrepende." Leonardo da Vinci.
