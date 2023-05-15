@@ -5,10 +5,18 @@ music & books & astronomy
 
 ☕️ 🗝 🥯🎼 
 
-Estudante
+📔Estudante
 
-2° ano do Ensino Médio
+🧬2° ano do Ensino Médio (IF: matemática e ciências da natureza)
 
-Aprendendo a arte da programação
+📐Futura arquiteta
+
+☁️Redes sociais:
+
+   ⇨IG: @jenny._day
+
+   ⇨skoob: @Jenifer41
+   
+   ⇨Pinteres: @jeniferdias373
 
 "Aprender é a única coisa de que a mente nunca se cansa, nunca tem medo e nunca se arrepende." Leonardo da Vinci.
