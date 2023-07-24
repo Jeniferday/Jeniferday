@@ -17,6 +17,6 @@ music & books & astronomy
 
    ⇨skoob: @Jenifer41
    
-   ⇨Pinteres: @jeniferdias373
+   ⇨Pinterest: @jeniferdias373
 
 "Aprender é a única coisa de que a mente nunca se cansa, nunca tem medo e nunca se arrepende." Leonardo da Vinci.
