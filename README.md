@@ -7,7 +7,7 @@ music & books & astronomy
 
 📔Estudante
 
-🧬2° ano do Ensino Médio (IF: matemática e ciências da natureza)
+🧬3° ano do Ensino Médio (IF: matemática e ciências da natureza)
 
 📐Futura arquiteta
 
